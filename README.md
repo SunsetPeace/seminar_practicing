@@ -1,1 +1,3 @@
 # seminar_practicing
+
+Ку
